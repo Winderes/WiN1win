@@ -1,7 +1,7 @@
 <h1>⚡ 1win – maksimum kazançlarınız ve bonuslarınız! ⚡</h1>
 
 <a href="https://cutt.ly/1wingirisn" title="1win Giriş">
-  <img src="https://i.ibb.co/gM5Zm548/g-venligiris.jpg" alt="1win Giriş Adresi" style="max-width: 100%; border: 3px solid #00bcd4; border-radius: 14px; box-shadow: 0px 0px 14px rgba(0, 188, 212, 0.7);">
+  <img src="https://i.ibb.co/BtMhhf6/g-venligiris.jpg" alt="1win Giriş Adresi" style="max-width: 100%; border: 3px solid #00bcd4; border-radius: 14px; box-shadow: 0px 0px 14px rgba(0, 188, 212, 0.7);">
 </a>
 
 <h2>🔥 1win'in başlıca avantajları</h2>
